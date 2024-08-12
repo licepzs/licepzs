@@ -8,7 +8,7 @@ Meu nome é Alice
 
 - ### Você pode entrar em contato comigo 📫
 
-00001125499680sp@al.educacao.sp.gov.br@gmail.com
+00001125499680sp@al.educacao.sp.gov.br
 
 @liceps
 
